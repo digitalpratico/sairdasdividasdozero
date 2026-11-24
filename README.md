@@ -1,2 +1,0 @@
-# paginavenda
-Ebook dividas
